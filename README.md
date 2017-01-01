@@ -2,7 +2,11 @@
 Curriculum
 
 Code
+
 Music
+
 Film
+
 Games
+
 Writing
